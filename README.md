@@ -2,9 +2,9 @@
 
 23 second - Coin Master free spins empower players to build villages, raid others, and advance in the game strategically
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://lejooam.github.io/Coin)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
 
-[**🔴► Click Here For Coin Master Free Spins 🌍**](https://lejooam.github.io/Coin)
+[**🔴► Click Here For Coin Master Free Spins 🌍**](https://moroccino.github.io/CoinMaster/)
  
 
 In the dynamic world of mobile gaming, Coin Master stands out as a captivating experience where players embark on a journey to build their virtual villages and amass wealth. Central to this adventure are the coveted Coin Master free spins, offering players the chance to accelerate their progress and unlock bountiful rewards.
